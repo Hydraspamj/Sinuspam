@@ -13,7 +13,7 @@
 
 <h4 align="center"> 𝐓𝐇𝐄 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
 
-<p align="center"><a href="https://t.me/shiva_ansh_op"><img src="https://telegra.ph/file/3c3ab79fba0fa91a4ae8e.jpg" width="400"></a></p>
+<p align="center"><a href="https://t.me/shiva_ansh_op"><img src="https://graph.org/file/d39591e29d8b5f596f49a.jpg" width="400"></a></p>
 
 
 > ⭐️ Thanks to everyone for using THIS STRANGER SPAM BOT, That is the greatest pleasure we have !
